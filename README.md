@@ -1,5 +1,4 @@
-### Hola a todos 👋
-# hola a todos
+## Hola a todos 👋
 ![craiyon_211917_data__intelligence__binary_code__humanity__in_rectangle_format](https://github.com/nicolasmahecha1125/nicolasmahecha1125/assets/141942565/7c4dac37-c13d-4e1f-acb3-8e81ebca04b2)
 
 ## Sobre mi
