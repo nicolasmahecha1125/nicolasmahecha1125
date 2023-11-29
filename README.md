@@ -7,8 +7,7 @@
 
 
 ## skills
-![image](https://github.com/nicolasmahecha1125/nicolasmahecha1125/assets/141942565/d8e54180-7407-48e4-a8dc-a831b41f4971) || ![image](https://github.com/nicolasmahecha1125/nicolasmahecha1125/assets/141942565/5ad2ee4b-c515-461b-b212-1b0624446987)
- || ![image](https://github.com/nicolasmahecha1125/nicolasmahecha1125/assets/141942565/041741cb-f1dd-4ba6-86f1-0810d617e54a) || 
+![image](https://github.com/nicolasmahecha1125/nicolasmahecha1125/assets/141942565/d8e54180-7407-48e4-a8dc-a831b41f4971) || ![image](https://github.com/nicolasmahecha1125/nicolasmahecha1125/assets/141942565/5b034fdb-317a-4edf-ae98-71bfc20b9f59)  || ![image](https://github.com/nicolasmahecha1125/nicolasmahecha1125/assets/141942565/041741cb-f1dd-4ba6-86f1-0810d617e54a) || 
 
 
 
